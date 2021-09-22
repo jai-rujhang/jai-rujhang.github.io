@@ -1,2 +1,2 @@
-# jai-rujhang.github.io
+# jairu.github.io
 生涯檔案
